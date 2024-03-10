@@ -1,4 +1,4 @@
-# 💫 It's Berru here ^^
+# 🌻 It's Berru here ^^
 Hi I'm Berru!<br>I'm gonna be a happy virus & make happy disease around you<3<br><br>I'm just a newbie so pls be kind ehe >///<<br>I'd love to sing, dance, cosplay, watch anime & K-dramas, and.... maybe create some codes...<br>I'm a cosplayer but currently I'm on hiatus<br>so that's all, yoroshikuu~~<br>here's a flower for u 🌻
 
 
