@@ -15,9 +15,6 @@ Hi I'm Berru!<br>I'm gonna be a happy virus & make happy disease around you<3<br
 ## 🏆 GitHub Trophies
 ![](https://github-profile-trophy.vercel.app/?username=bellaef&theme=dracula&no-frame=false&no-bg=false&margin-w=4)
 
-### 🔝 Top Contributed Repo
-![](https://github-contributor-stats.vercel.app/api?username=bellaef&limit=5&theme=dracula&combine_all_yearly_contributions=true)
-
 ---
 [![](https://visitcount.itsvg.in/api?id=bellaef&icon=7&color=10)](https://visitcount.itsvg.in)
 
