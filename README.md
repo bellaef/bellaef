@@ -18,4 +18,6 @@ Hi I'm Berru!<br>I'm gonna be a happy virus & make happy disease around you<3<br
 ---
 [![](https://visitcount.itsvg.in/api?id=bellaef&icon=7&color=10)](https://visitcount.itsvg.in)
 
+[![Discord Presence](https://lanyard.cnrad.dev/api/465909520078733312)](https://discord.com/users/465909520078733312)
+
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
